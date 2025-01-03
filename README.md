@@ -1,0 +1,1 @@
+The logo is created by doing a deep research on the company and it's name. As per the name, it is a combination of create and wise. I have very intuitively choosen the fonts for both the fonts and in the place of "I" I have put a paint brush, as the company primaryly focuses on creative field.
